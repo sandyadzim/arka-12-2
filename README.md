@@ -32,3 +32,4 @@ Saya bisa mengerjakan soal ini hampir 100% karena bantuan dari Google.
 Untuk screenshot demo aplikasi nya, bisa dilihat di folder capture.
 
 #TERIMAKASIH
+#Bismillah Lolos , Aamiin
